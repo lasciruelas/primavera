@@ -16,6 +16,6 @@ Premisas de la organización:
 - Jugar con la fecha del evento, 25 de abril como fecha conmemorativa de la Revolución de los claveles de Portugal.
 - Que tenga una estética feminista.
 
-Pueddes ver todo el proceso creativo en http://lasciruelas.hotglue.me/primavera
+Puedes ver todo el proceso creativo en http://lasciruelas.hotglue.me/primavera
 
 
